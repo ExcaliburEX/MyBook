@@ -42,10 +42,10 @@
 ## <font face="Times New Roman">20.7.22~7.26</font>
 > <font face="Noto Serif SC">&emsp;&emsp;记忆似乎有些模糊，24日是小治的生日，寿星又自己下厨准备了一桌菜，我们在一旁又是拍照，又是拍Vlog。里面忙的不亦乐乎，外面亦然。</br></br>幸而，步入露台庭院，夕阳中，为一人摄影，落日余晖中，有清纯可人，亦有惊鸿艳影，自是得意洋洋，也有赞不绝口。</br></br>关灯，欢歌笑语中，我们吹灭了过往的一瞬，做起了一场不愿醒来的清醒的梦。黑暗中的手机闪光蹦迪，个人solo秀，JCQ组合的出道第N次秀，不同寻常的一次学猫叫，最后的大合拍卡路里，这场“夜夜笙歌”已经镌刻入那永不褪色的名为“我们”的画卷。</br></br>25日，大集合追了一波BML的云LIVE，失去了去不了现场的心理不平衡感，今天奇怪的是，大家都很累，我也是，明明啥也没干。26日，李婷儿组织的密室秀就开启了集合，恐怖倒不是特别恐怖除了NPC，主要是全程都很黑暗，所以这种未知令人不安，没有完成有些遗憾，但是最后听完解说之后，只能说一句，幸好没通关。当然在那场黑暗中，有个女孩一直站着没动，我就也一直等她动，导致她的人影一直不动，我就一直站在原地，我怕往前走撞到她。当后来有些光影时，她说你吓到了我了，你为什么一直不动啊！我说，我怕撞到你啊，还有鬼再来怎么办呢！后来就是一下午的大型狼人杀，连续6把狼人，我这运气没谁了，导致后来我只要一笑，他们就猜出来我是谁了，“他笑的像朵花一样”，还是那个女孩。</br></br>回来后，老板跟我和yq开始讨论读博与上市实现财务自由的事情，那些有我当然开心，没有我也不去奢望，老板很善良，但我只想发篇论文而已。小治，静静我们叁，后来又聊到了后半夜，感情，论文，项目，到处都是坑，一个太累没有未来，一个太难没有结果。也许我们唯一可以称到的点就是，站在2020看2010，ML是一个新起之秀，引领者未来十年的科技巨变，那么站在2030看2020，我们恐怕可以攥紧这张可以登上这辆即将全速前进的列车的车票，至于我们是否会被中途踢下车，还是上错了车，都已经不重要，至少，我们不会在2020去做2010已经做完的事了。</font>
 
-<a href="https://sm.ms/image/a5GgTQ1Fue7yPUV" target="_blank"><img src="https://i.loli.net/2020/07/27/a5GgTQ1Fue7yPUV.jpg" /></a>
-<a href="https://sm.ms/image/L6s3oKQR8NEBgZY" target="_blank"><img src="https://i.loli.net/2020/07/27/L6s3oKQR8NEBgZY.jpg" /></a>
-<a href="https://sm.ms/image/LZtvJKHeu2xUOkE" target="_blank"><img src="https://i.loli.net/2020/07/27/LZtvJKHeu2xUOkE.jpg" /></a>
-<a href="https://sm.ms/image/oLz1mQye9JtvcV5" target="_blank"><img src="https://i.loli.net/2020/07/27/oLz1mQye9JtvcV5.jpg" /></a>
+<img src="https://i.loli.net/2020/07/27/a5GgTQ1Fue7yPUV.jpg" />
+<img src="https://i.loli.net/2020/07/27/L6s3oKQR8NEBgZY.jpg" />
+<img src="https://i.loli.net/2020/07/27/LZtvJKHeu2xUOkE.jpg" />
+<img src="https://i.loli.net/2020/07/27/oLz1mQye9JtvcV5.jpg" />
 
 
 
@@ -53,11 +53,11 @@
 
 > <font face="Noto Serif SC">&emsp;&emsp;夜深了，此时又到了回忆的时刻。</br></br>不知不觉一段漫长的时光又逝去了。27，8发生了一段比较大的变故，所有人都没来得及反应。</br></br>27号，大概是第一次的集体running。领跑的人，其实是一个准备跑几百米停下玩剧本杀的人，破坏了全程的节奏。3公里后的二人漫步，聊了很多人生的事情，我们都想变得更加自信，我们也互相欣赏，真是一段快乐的时光。可是我却没有跟她再次发现那天的猫咪们，这大概是最大的遗憾吧。</br></br>28号，夜。由于昨天白天与今天白天，发生了一连串的事件，无法名状，我，浩，靖，行走在湖畔与幽径上，聊着我那段已然逝去无踪的情感，它其实也从未出现过，只是我从一开始就将其看得太重，重到梦也无法承载，而这股余劲既然到了此刻也还未散去。浩前两次的建议，我每次到了那当口都没有采纳，如今他依然坚持，我想我也不应该再逃避那个我害怕知道的答案了。夏夜燥闷的空气裹挟着我们踟躇，四周的黑暗一片死寂，我们依然感伤于这段孤独的旅程，这旅程既指此刻的我们，亦是这段时光的我们，我想我们都知道指的是什么。回去之后，罕见的大家都在，一直聊到深夜我们都知道，事已成定局。</br></br>接下来大概是比较灰暗的三天。</br></br>30号，夜。不知怎么又是一趟出游。在优衣库前面端详了很久的鬼灭之刃联名版海报，一转眼，小q就从那拐角出现了，就像是接下来的一天，一转眼就从上海站的拐角出现一样，总是这样刚刚好。一起吃了一顿名为“散伙饭”的不散伙饭，很污的猜词语游戏，死贵的东南亚菜以及名为“皞”的酒吧买醉，搞笑的是很low地开着手机闪光灯在情调高雅的酒吧看菜单，以及我拿着蜡烛对着自己的脸开心地玩起了剧本杀，凶手终于不是我了，以及以后话少的就是凶手的至理法则。</br></br>8.1号，“好烦呐，我们又见面了。”，名为“6个位置，买了上下左右的4个位置准备夹住中间两个落单的妹子”的作战计划，宣告成功一半，前面的是个妹子，一般人吧，全程带着口罩玩着手机，也没法啊。场景一：一个大长腿，正常人等级的妹子进了厕所，我加浩，目不转睛地等待，忽地我看起来pyq的csdn文章，两个人才看了5秒钟，那女的迅雷不及掩耳之势从厕所走到我们身边，刚抬头人已远去。浩：看个鸡儿csdn，看，人没了吧。我：我和她只差一篇csdn文章的距离......这趟cj之旅，随与那些年跟小武一起去做的事情差不多，但又差太多，难忘的程度又上升了一个级别，虽然我已不再想拍那些sg，也不再想跟他们合影。从非常关注她们，我变得更加关注自己，给身边的人拍了很多照片，也为自己拍了照片。小q玩的很累是真的，虽然表示再也不想去了，但我觉得她还是很happy的，尤其是摄影时。夜里，三人挤在一张床，那是相当难忘的啊。</br></br>8.2号，数不清这一天拍了多少张照片了，在星空艺术馆整整待了一天......感觉还是很烦躁的，诺大的上海，真的没地方去了吗？夜晚的南京路有了加长加宽版观前街的味道，少了小q的夜游外滩有些许失落，不过我们还是在各种自拍拍人中，忘记了一切，尽情陶醉，旁若无人。</br></br>她没回我信息，这就是最近的故事吧。</font>
 
-<a href="https://sm.ms/image/JvTf91SUECnMiXN" target="_blank"><img src="https://i.loli.net/2020/08/04/JvTf91SUECnMiXN.jpg" /></a>
-<a href="https://sm.ms/image/RwDHObIxrjSdJ35" target="_blank"><img src="https://i.loli.net/2020/08/04/RwDHObIxrjSdJ35.jpg" /></a>
-<a href="https://sm.ms/image/WgUvp3jTiXNbfxG" target="_blank"><img src="https://i.loli.net/2020/08/04/WgUvp3jTiXNbfxG.jpg" /></a>
-<a href="https://sm.ms/image/Z6OQADJfRhWYvEM" target="_blank"><img src="https://i.loli.net/2020/08/04/Z6OQADJfRhWYvEM.jpg" /></a>
-<a href="https://sm.ms/image/XgjJlpTfq9rt4DY" target="_blank"><img src="https://i.loli.net/2020/08/04/XgjJlpTfq9rt4DY.jpg" /></a>
-<a href="https://sm.ms/image/CNbApgqwhxDW3UT" target="_blank"><img src="https://i.loli.net/2020/08/04/CNbApgqwhxDW3UT.jpg" /></a>
-<a href="https://sm.ms/image/HoLOU5zipPYAKVu" target="_blank"><img src="https://i.loli.net/2020/08/04/HoLOU5zipPYAKVu.jpg" /></a>
+<img src="https://i.loli.net/2020/08/04/JvTf91SUECnMiXN.jpg" />
+<img src="https://i.loli.net/2020/08/04/RwDHObIxrjSdJ35.jpg" />
+<img src="https://i.loli.net/2020/08/04/WgUvp3jTiXNbfxG.jpg" />
+<img src="https://i.loli.net/2020/08/04/Z6OQADJfRhWYvEM.jpg" />
+<img src="https://i.loli.net/2020/08/04/XgjJlpTfq9rt4DY.jpg" />
+<img src="https://i.loli.net/2020/08/04/CNbApgqwhxDW3UT.jpg" />
+<img src="https://i.loli.net/2020/08/04/HoLOU5zipPYAKVu.jpg" />
 
