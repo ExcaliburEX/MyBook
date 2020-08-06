@@ -5,9 +5,11 @@ Life Book👋🏻📚
 
 [![ExcaliburEX's github stats](https://github-readme-stats.vercel.app/api?username=ExcaliburEX&show_icons=true&title_color=fff&icon_color=79ff97&text_color=9f9f9f&bg_color=151515)](https://github.com/ExcaliburEX)
 
-- <font face="Noto Serif SC" color=#1E90FF>[柯摩的BLOG](https://www.kemo.xyz) </font>
-- <font face="Noto Serif SC" color=#1E90FF>[知乎专栏：柯摩的世界](https://zhuanlan.zhihu.com/c_1157679453546053632)</font>
-- <a href="https://weibo.com/u/5339619827/home?wvr=5" target="_blank"><img src="https://i.loli.net/2019/10/03/EpeGPqVW2yZHbIz.png" width = "30"/></a>
+- [柯摩的BLOG](https://www.kemo.xyz) 
+- [知乎专栏：柯摩的世界](https://zhuanlan.zhihu.com/c_1157679453546053632)
+<a href="https://weibo.com/u/5339619827/home?wvr=5" target="_blank">
+
+<img src="https://i.loli.net/2019/10/03/EpeGPqVW2yZHbIz.png" width = "30"/></a>
 
 [![HitCount](http://hits.dwyl.com/ExcaliburEX/Daily-Plan-In-Graduate-Life.svg)](http://hits.dwyl.com/ExcaliburEX/Daily-Plan-In-Graduate-Life)
 
@@ -20,9 +22,9 @@ Life Book👋🏻📚
 ![](https://img.shields.io/badge/Followers-666-brightgreen)![](https://img.shields.io/badge/Rating-10000-orange)![](https://img.shields.io/badge/chat-6666-blue)
 [![Buy me a coffee](https://img.shields.io/static/v1.svg?label=Buy%20me%20a%20coffee&message=🥨&color=black&logo=buy%20me%20a%20coffee&logoColor=white&labelColor=6f4e37)](https://your-donate-link)[![Add to Chrome](https://img.shields.io/static/v1.svg?label=Add%20to&message=Chrome%20🧘)](https://chrome.google.com/webstore/detail/lastpass-free-password-ma/hdokiejnpimakedhajhdlcegeplioahd) ![Copyright](https://img.shields.io/static/v1.svg?label=My%20cool%20project%20©️%20&message=%202019%20Name&labelColor=informational&color=033450) [![Email me](https://img.shields.io/static/v1.svg?label=Email%20me&labelColor=blueviolet&message=📧)](mailto:912011727@qq.com) ![Apache 2.0 License](https://img.shields.io/static/v1.svg?label=📃%20License&message=Apache-2.0&color=informational) ![GPLv3](https://img.shields.io/static/v1.svg?label=📃%20License&message=GPL%20v3.0&color=informational) ![MIT License](https://img.shields.io/static/v1.svg?label=📜%20License&message=MIT&color=informational) [![Tweet about this](https://img.shields.io/static/v1.svg?label=Tweet%20about%20this&message=🎵&color=blue&logo=twitter&style=social)](https://ctt.ac/5ET9U)  
 
-- <font face="Noto Serif SC" color=#1E90FF>**完成度`< 50%`: 🌠**</font>
-- <font face="Noto Serif SC" color=#1E90FF>**完成度`50%~80%`: :star:**</font>
-- <font face="Noto Serif SC" color=#1E90FF>**完成度`80%~100%`: 🌟**</font>
+- **完成度**`< 50%`: 🌠
+- **完成度**`50%~80%`: :star:
+- **完成度**`80%~100%`: 🌟
 
 # ♎️ <font face="Times New Roman">2019年9月
 <table>
@@ -976,6 +978,9 @@ Life Book👋🏻📚
 </font>
 
 ![we](https://blog-1259799643.cos.ap-shanghai.myqcloud.com/we.jpg)
+
 ![me](https://blog-1259799643.cos.ap-shanghai.myqcloud.com/me.jpg)
-<font face="Noto Serif SC">记录生活</font>:sparkling_heart::sparkling_heart::sparkling_heart:
-:revolving_hearts::revolving_hearts::revolving_hearts:
+
+记录生活
+
+💞💞💞💖💖💖
